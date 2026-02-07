@@ -1,1 +1,1 @@
-Atividades relaciondas ao 1 semestre.
+Atividades relaciondas ao semestre 1.
